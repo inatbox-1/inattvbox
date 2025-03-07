@@ -8,23 +8,23 @@
 </head>
 <body>
 <h1 style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;">👉 İnat BOX Apk İndir &darr;</span></h1>
-<h3 style="text-align: center;"><a href="./inat-box.html" target="_blank"><span style='font-family: "Arial Black", Gadget, sans-serif;'>https://inattv.cfd/inat-box.html</span></a></h3>
+<h3 style="text-align: center;"><a href="https://dosya.co/sn9ri9zcfnxx/inattvbox.apk.html" target="_blank"><span style='font-family: "Arial Black", Gadget, sans-serif;'>https://inattv.cfd/inat-box.html</span></a></h3>
 <p style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;">İnat BOX Yedek Link &darr;</span></p>
-<p style="text-align: center;"><a href="./inat-box-v14.apk"><span style="font-family: 'Arial Black', Gadget, sans-serif;">https://inattv.cfd/inat-box-v14.apk</span></a></p>
+<p style="text-align: center;"><a href="https://old.my.mobiroller.com/downloadAPK/Index?apk=3361951371912.apk"><span style="font-family: 'Arial Black', Gadget, sans-serif;">https://inattv.cfd/inat-box-v14.apk</span></a></p>
 <p style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;">-----</span></p>
 
 <h1 style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;">👉 İnat TV PRO Apk İndir &darr;</span></h1>
-<h3 style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;"><a href="./inat-tv-pro.html" target="_blank"><strong>https://inattv.cfd/inat-tv-pro.html</strong></a></span></h3>
+<h3 style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;"><a href="https://dosya.co/sn9ri9zcfnxx/inattvbox.apk.html" target="_blank"><strong>https://inattv.cfd/inat-tv-pro.html</strong></a></span></h3>
 <p style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;"><strong>İnat TV PRO Yedek Link &darr;</strong></span></p>
-<p style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;"><a href="./inat-tv-pro-v21.apk">https://inattv.cfd/inat-tv-pro-v21.apk</a></span></p>
+<p style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;"><a href="https://old.my.mobiroller.com/downloadAPK/Index?apk=3361951371912.apk">https://inattv.cfd/inat-tv-pro-v21.apk</a></span></p>
 
 <p style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;">-----</span></p>
-<p style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;"><strong>👉 <a href="https://twitter.com/inattvapk" target="_blank">İNAT TV TWİTTER</a> ADRESİMİZ &darr;</strong></span></p>
-<p style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;"><a href="https://twitter.com/inattvapk" target="_blank">https://twitter.com/inattvapk</a></span></p>
+<p style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;"><strong>👉 <a href="https://twitter.com/hdtaraftartv4k2" target="_blank">İNAT TV TWİTTER</a> ADRESİMİZ &darr;</strong></span></p>
+<p style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;"><a href="https://twitter.com/hdtaraftartv4k2" target="_blank">https://twitter.com/inattvapk</a></span></p>
 <p style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;">-----</span></p>
 
-<p style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;"><strong>👉 <a href="https://t.me/inattvadmin" target="_blank">İNAT TV TELEGRAM</a> KANALIMIZ &darr;</strong></span></p>
-<p style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;"><a href="https://t.me/inattvadmin" target="_blank">https://t.me/inattvadmin</a></span></p>
+<p style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;"><strong>👉 <a href="https://twitter.com/hdtaraftartv4k2" target="_blank">İNAT TV TELEGRAM</a> KANALIMIZ &darr;</strong></span></p>
+<p style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;"><a href="https://twitter.com/hdtaraftartv4k2" target="_blank">https://t.me/inattvadmin</a></span></p>
 <p style="text-align: center;"><span style="font-family: 'Arial Black', Gadget, sans-serif;">-----</span></p>
 
 <h3 style="text-align: center;"><span style="font-family: Arial, Helvetica, sans-serif;">Uygulamalar sadece Android i&ccedil;indir. Android olan TV&apos;lerde de kullanabilirsiniz.</span></h3>
